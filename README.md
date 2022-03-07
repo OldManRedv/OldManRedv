@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @OldManRedv
+- 👀 I’m interested in making a better world for everybody.
+- 📫 How to reach me @systemoperator Handshake
