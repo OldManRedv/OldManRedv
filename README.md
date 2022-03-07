@@ -4,5 +4,5 @@
 
 They say knowledge is power; I disagree. Useful knowledge is intelligence, wisdom is power. Value what matters and you will never be lost.
 
-It is my belief that what truly matters is innovation, and application behind ideas that bring bring. What is done today, may advance tomorrow.
+It is my belief that what truly matters is innovation, and application behind ideas that bring new eras. What is done today, may advance tomorrow.
 -S
